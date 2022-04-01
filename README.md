@@ -12,7 +12,7 @@ Relación de ejercicios
 6. Juan Carlos
 7. Daniel
 7. Jose
-8. 
+8. Antonio Navarro
 9. 
 10. Daniel
 11. 
